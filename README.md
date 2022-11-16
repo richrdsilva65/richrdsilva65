@@ -1,0 +1,3 @@
+- 👋 oi, eu sou richard
+- 👀 estou innteressado em basquete ...
+- 🌱 atuualmente estou no contruct 3 e scracht
